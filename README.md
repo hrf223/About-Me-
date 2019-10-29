@@ -1,10 +1,10 @@
 # About-Me-
 Hannah Foster 
+
 Education							                             Expected Graduation: May 2023
 Bachelor of Science in Finance at Lehigh University, Bethlehem, PA 
 
 Community Service and Leadership 
-
 Lehigh Women’s Golf  Team   (Student Athlete) 							August 2019 - Present
 
 Interact and bond with a diverse group  
